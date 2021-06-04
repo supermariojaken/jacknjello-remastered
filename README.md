@@ -1,2 +1,2 @@
-# sit-tight-for-josephcrosmanplays532.github.io
-annousements for the josephcrosmanplays532.github.io domain
+# sit-tight-for-jacknjello-remastered.github.io
+annousements for the jacknjello-remastered.github.io domain
